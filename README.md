@@ -1,2 +1,3 @@
 # hello-world
 GitHub orientation attempt #1a
+Right.  Sitting in the enclosed back porch of a rented apartment in Friendship/E.Liberty, trying to wrap my head around modeled spaces of my neurons' output chutes...
